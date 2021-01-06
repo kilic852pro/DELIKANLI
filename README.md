@@ -1,0 +1,2 @@
+# DELIKANLI
+Delikanlılar olsun
